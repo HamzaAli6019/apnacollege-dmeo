@@ -7,18 +7,3 @@ Aurthor Hamza
 
 
 
-Iqbal
-
-
-Mafiya
-
-
-
-saira
-
-
-
-
-
-
-Mafiyaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
